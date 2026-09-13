@@ -1,6 +1,6 @@
 Welcome to my space for personal projects, contributions, miscellaneous builds, and experiments. 
 
-╰┈➤ˎˊ˗ Connect with me here! : https://www.linkedin.com/in/prashamsa-b-b893b1243/ 
+╰┈➤ˎˊ˗ Connect with me here! : https://www.linkedin.com/in/prashamsab
 
                             ╱|、
                           (˚ˎ 。7  
